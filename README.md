@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gggwvg
-- 👀 I’m interested in everything
+- 👀 I’m interested in something
 - 🌱 I’m currently learning nothing
 
 <!---
